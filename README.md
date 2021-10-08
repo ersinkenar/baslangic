@@ -1,2 +1,2 @@
 # baslangic
-yeni basliyorum :)
+
